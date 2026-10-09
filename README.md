@@ -2,6 +2,6 @@
 The light will dance!
 
 ## Look
-Listen to the clear sound of the "Dance of The Knights" masterpiece, while looking at the dancing lights!
+Play the piano using asdfghjk or touch the screen wherever you want to play the piano!
 
 ## Thanks and enjoy
